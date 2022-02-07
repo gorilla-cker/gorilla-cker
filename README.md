@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @gorilla-cker
+- 👀 I’m interested in learning to code better
+- 📫 How to reach me / discord - watcheraccoon#8988 / reddit - bottledreddit
